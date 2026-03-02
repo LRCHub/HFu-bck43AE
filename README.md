@@ -1,4 +1,4 @@
-# キタニタツヤ – かすかなはな (Lyric Video) / キタニタツヤ feat. BABYMETAL - Kasuka na Hana (A Faint Flower)
+# キタニタツヤ – かすかなはな - Kasuka na Hana (OP Theme to Hell's Paradise: Jigokuraku Season 2)（feat. BABYMETAL）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
